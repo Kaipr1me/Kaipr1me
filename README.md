@@ -1,16 +1,13 @@
-## Hi there 👋
+<center>
+</pre>
+" You Hit Like You Dress… All Feminine. "
 
-<!--
-**Kaipr1me/Kaipr1me** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Image](https://github.com/user-attachments/assets/2be449ab-9592-42be-aa4f-7cb38fd0cca9)
+  
+S/he - her          ‪‪❤︎‬          8teen
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+read SP b4 INT 
+
+![Image](https://github.com/user-attachments/assets/e7eba00e-fa73-474e-8289-98ef8bfa636f)
+</center>
