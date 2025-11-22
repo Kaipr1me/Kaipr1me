@@ -9,6 +9,5 @@ S/he - her          ‪‪❤︎‬          8teen
 
 read SP b4 INT 
 
-![Image](https://github.com/user-attachments/assets/e7eba00e-fa73-474e-8289-98ef8bfa636f)
-
+![Image](https://github.com/user-attachments/assets/291c06a6-1154-42f8-bf46-89b194cf4845)
 </center>
